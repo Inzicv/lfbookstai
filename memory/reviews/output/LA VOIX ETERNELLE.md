@@ -1,6 +1,6 @@
 ## LA VOIX ETERNELLE
 Je te parle de mon coup de coeur de l’année en fantasy. C’est ma bookcops Mona Lisait qui m’a conseillé cette lecture, mais j’etais pas prete de prendre la claque de l’année.
-#Pitch 
+# pitch 
  Le pitch
 On est à Orrun, un empire qui a connu 24 ans de paix… donc forcément, c’est le moment idéal pour tout foutre en l’air.
 7 candidats vont s’affronter pour prendre la place de l’empereur. Des stratèges, des guerriers, des têtes pensantes — bref, les meilleurs des meilleurs.
@@ -14,7 +14,7 @@ Et si elle échoue, c’est simple : c’est la mort.
  Parce que nous, on est là.
  Nous sommes le Corbeau.
  Et nous sommes magnifiques.
-#Avis 
+# avis 
 J’ai été dans un premier temps déroutée car il s’agit d’un recit a la 3eme personne avec un narrateur omniscient dont je vous laisserai découvrir l’identité par vous meme pour ne pas gacher votre lecture.
 Mais alors, on rentre direct dans le vif du sujet.
  Pas l’temps d’niaiser.

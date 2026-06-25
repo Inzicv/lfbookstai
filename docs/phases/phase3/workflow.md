@@ -31,7 +31,7 @@ Le Review Assistant :
 - remet les idées dans l'ordre ;
 - améliore la formulation ;
 - conserve le ton habituel ;
-- s'appuie sur les anciens `#avis`.
+- s'appuie sur les anciens `# avis`.
 
 ### 3. Propositions de hooks
 

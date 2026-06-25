@@ -3,7 +3,7 @@
  J’pensais lancer un petit audio tranquille. J’ai fini les larmes aux yeux, amoureuse d’un stepbrother et iavec les même narcos dans la tete.
 Castel Boy c’est pas un roman, c’est un piège à émotions.
 Laisse-moi t’expliquer pourquoi j’ai mis ce livre dans mon top de l’année… easy.
-#Pitch 
+# pitch 
 Le pitch:
 Marise, elle voulait juste survivre à un déménagement paumé au fin fond du sud, un nouveau lycée moisi et une daronne qui fait des choix amoureux douteux.
 Mais elle tombe sur San Pedro, une ville où y’a rien… sauf un château chelou perché sur la colline. Genre manoir de film d’horreur sur Airbnb. Et visiblement, toutes les meufs qui y entrent ne ressortent pas. Ambiance.

@@ -21,7 +21,7 @@ Entrée :
 
 Sortie :
 
-- dictionnaire avec le titre du livre, les champs utiles, les anciens `#pitch`, les anciens `#avis` et les références humoristiques
+- dictionnaire avec le titre du livre, les champs utiles, les anciens `# pitch`, les anciens `# avis` et les références humoristiques
 
 ### `generate_pitch(slug)`
 

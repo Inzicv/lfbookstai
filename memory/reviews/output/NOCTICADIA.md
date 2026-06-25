@@ -1,6 +1,6 @@
 ## NOCTICADIA 
 LE PAAAAAAAINNNNN. Le pain que je viens de lire la les gars. Je vais vous parler d’une lecture VO que je viens de terminer, c’ets une dinguerie. Alors attention je vous parle d’une dark academia/ romance gothique, malgre ce que pourrais faire penser le titre et la DA on est pas sur de la fantasy, bref.
-#Pitch  
+# pitch  
 LE PITCH : 
 Bienvenue à Dracadia University : un campus isolé sur une île au large du Maine, construit sur les ossements de fous de “sorcières” internés il y a des siècle 
 Ouais. Ambiance Mercredi Nevermore sans les pouvoirs magiques.
@@ -12,7 +12,7 @@ Brillant pathologiste, professeur à la beauté dangereuse, le genre de mec qui 
 Il la déteste, elle le défie, et forcément… ça dégénère.
  C’est interdit, c’est sombre, c’est tendu et on n’est pas là pour un slow burn innocent.
 Entre autopsies à minuit, secrets de famille, désirs coupables et apparitions dangereuses, Nocticadia t’embarque dans une dark academia gothique, mystique et complètement hypnotique.
-#Avis
+# avis
  LA. PLUME.
  Une dinguerie.
  Keri Lake, elle t’écrit un univers tellement immersif que j’avais l’impression d’avoir moi-même pris un appart dans le campus hanté.

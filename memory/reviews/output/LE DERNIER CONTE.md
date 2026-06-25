@@ -1,6 +1,6 @@
 ## LE DERNIER CONTE
 Imagine Once Upon a Time, mais version fée au bord du burn-out.
-#Pitch 
+# pitch 
  le pitch
 Ariane, c’est la dernière fée du monde des contes, et la seule capable de le sauver. Pour ça, elle doit trouver un prince charmant et créer une fin heureuse.Problème : rupture de stock sur les princes charmants.
 Donc elle décide d’en kidnapper un dans notre monde.
@@ -10,7 +10,7 @@ Mais le voilà embarqué dans une quête magique dans le monde des contes où le
 Parce que dans le monde des contes… les princesses saignent, les héros flanchent, et les monstres ont parfois de bonnes raisons d’être monstrueux.
 Ariane, derrière son côté fée glaciale et ses punchlines piquantes, traîne une rage ancienne et un gros passif.
 Mais avec Warren, ils vont devoir apprendre à se faire confiance, à se supporter, et surtout à sauver les contes avant que tout parte en fumée.
-#Avis 
+# avis 
 Franchement, ce roman m’a surprise. J’étais un peu sceptique au début, mais très vite, je suis devenue complètement accro.
  C’est drôle, bourré de références aux contes et à leurs adaptations ciné, et surtout, j’ai adoré la comparaison entre nos versions des histoires (et celle de Warren) et la vraie version du monde des contes.
 Il y a de l’action, de l’adrénaline, et des héros super attachants.

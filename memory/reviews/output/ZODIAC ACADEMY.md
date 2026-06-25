@@ -1,6 +1,6 @@
 ## ZODIAC ACADEMY
 J’ai fait ce que même les dieux du zodiaque n’avaient pas prévu : j’ai lu les 9 tomes de Zodiac Academy. Ouais, les 9. Plus les 0.5, 5.5 et 8.5. 7500 pages. En trois semaines. Avec deux pauses romances au milieu pour respirer. Autant te dire que j’ai plus vu la lumière du jour, mais j’ai adoré.
-#Pitch  
+# pitch  
 Tory et Darcy, C’est deux sœurs orphelines, elles galèrent de fou dans la vie.
 *meme omgsalva la hess*
  Jusqu’au jour où un mec chelou débarque :
@@ -16,7 +16,7 @@ Et même si Tory et Darcy jurent qu'elles ne veulent pas du trône, les mecs dé
 Et ça, c’est juste le début du tome 1.
  Y’en a huit derrière.
  Donc ouais… accroche ta ceinture, parce que c’est que le début du chaos.
-#Avis 
+# avis 
 JE vais pas voir dire que la plume est exceptionnelle, je vais pas vous dire que c’ets original de fou, mais bordel qu’est ce que c’est addictif !
 Je ne sais meme aps par ou commencer... l'univers est assez riche mais on le decouvre au fur et a mesure avec les prota donc on a pas l'impression d'etre assomé par les infos. Je sais qu'il y a des personne qui ne se laisse pas tenter par la saga parce qu'elle comment par du bully. C'est une trope avec laquelle j'ai du mal mais sachez que les mauvaises actions ne sont ni minimisée a aucun moment et qu'elle ne seront pas oubliée en un claquement de doigt et que vous aurez droit a de la vangeance bien satisfaisante.
 Les Prota, j'adore ! Darcy est un peu plus douce et refléchie, quand tory n'a pas sa langue dans sa poche et a tendance a foncer tete baissée. Je peux pas trop parler sans spoiler, mais sachez qu'il y a des personnage que vous allez hair, puis bien aimer, puis adorer. Il y a un monde entre le tome 1 et le tome 9, et vos certitudes seront maltraitées du début à la fin. Je vais meme pas parler des Hommes dans cette saga car le moindre détail pourrait vous spoiler mais sachez que mon coeur est coupé en deux, un moitié pour Lance Orion, et une autre pour Darius Acrux. Treve de plaisanterie de midinette on fire, l’evolution des personnages et le found family est incroyable. Ya des personnages vraiment hilarants

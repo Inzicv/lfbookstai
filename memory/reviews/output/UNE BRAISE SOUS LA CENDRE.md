@@ -2,7 +2,7 @@
 On part sur une review très importante pour moi, parce qu’on parle d’une saga qui est dans mon top 3 fantasy… et clairement, c’est pas la numéro 3.
  Une Braise sous la Cendre de Sabaa Tahir.
  C’est Lotalira qui m’a donné envie de la lire — et honnêtement, meilleure influence possible.
-#Pitch 
+# pitch 
 Le pitch :
  Imagine un monde où lire, c’est littéralement un crime.
  Genre t’ouvres Harry Potter et bam, peine de mort.
@@ -13,7 +13,7 @@ On suit Laia, 16 ans, qui vivait sa vie tranquille jusqu’à ce que son frère 
 Et pendant ce temps, Elias, le fils de ladite psychopathe, s’entraîne à devenir le prochain bourreau en chef… sauf que lui, il est team “je veux juste la paix et un peu de sommeil”.
  Spoiler : il est aussi beaucoup trop charismatique pour être un simple soldat random.
 Et forcément, leurs chemins vont se croiser — parce qu’il faut bien un peu de tension dramatique et de regards qui brûlent pour sauver tout ce désespoir.
-#Avis 
+# avis 
 Alors déjà, faut le savoir : c’est classé “Young Adult”, mais j’suis pas sûre de ça.
  C’est violent, politique, intense — pas une lecture détente du dimanche, on va dire.
 Cette série, c’est une claque monumentale.

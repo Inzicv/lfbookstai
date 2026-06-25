@@ -1,9 +1,9 @@
 ## COLOC COCKTAIL ET PLUS SI AFFINITE
 J'ai lu Coloc, cocktail et + si affinités et j’aimerais porter plainte pour excès de perfection masculine. Malone, tu n’existes pas, et ça me ruine la vie.
-#Pitch 
+# pitch 
 le pitch : 
 Dans ce tome on rencontre Sixtine. Alors déjà, Sixtine elle gère un palace de luxe à Cannes à 22 ans pendant que moi j’ai du mal à gérer mon panier Drive et qu’a son age je mangeais mes crottes de nez. Ensuite, elle a quatre grands frères en mode vigiles de boîte de nuit, qui veulent pas qu’elle respire sans autorisation écrite. Et là, bam : deux saisonniers débarquent Ziggy avec sa vibe de labrador foufou de 3 mois et Malone avec son sourire en coin, son air de bad boy allergique aux émotions, et sa capacité à foutre en l’air toutes ses bonnes résolutions juste en enlevant son tshirt. Bref : c’est une comédie romantique avec des abdos, des dialogues qui claquent, et un petit goût de mojito (nono josé)
-#Avis 
+# avis 
 Biensur que j’ai su que j’étais foutue dès les premières pages.
 Biensur que j’étais déjà accro à cette bande de coloc’ depuis le tome 1.
 Mais là… SARAH LINE, ELLE A FAIT MIEUX. C’est illégal. Tu peux pas balancer autant de charme, de chaleur, d’humour et de tension sexuelle dans un seul livre. C’est un attentat à ma paix intérieure.
